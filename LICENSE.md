@@ -1,4 +1,4 @@
-# 
+# Sécurisé liquidity sniper bot outils pour Mac OS | Instantané liquidity sniper bot outils pour PC Windows. Avec détection de rug pull et ordres au marché — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
